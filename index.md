@@ -1,0 +1,3 @@
+## Takoma Park Intergenerational Strategy Games Club
+
+The TPISDGC (besides having a lot of letters in the name) is a free program....
