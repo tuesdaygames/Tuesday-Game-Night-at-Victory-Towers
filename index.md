@@ -2,12 +2,12 @@
 
 The TPISGC is a free program for all ages that meets every 
 
-<b>
-> Tuesday from 7:00 to 9:00 PM <br/>
-> Victory Tower Retirement Center <br/>
-> 7051 Carroll Avenue<br/>
-> Takoma Park, MD
-</b>
+<p style="margin-left:20px; font-weight:bold">
+Tuesday from 7:00 to 9:00 PM <br/>
+Victory Tower Retirement Center <br/>
+7051 Carroll Avenue<br/>
+Takoma Park, MD
+</p>
 
 Students can earn (SSL) Student Service Learning hours and enjoying playing games with seniors. With the large selection of board games, we have a game for everyone to enjoy. From the classics such as backgammon to strategy games Catan, Dominion, and Ticket to Ride and Bridge we've got what you're looking for. 
 
