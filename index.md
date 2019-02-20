@@ -15,5 +15,5 @@ Join fellow strategy game enthusiasts every Tuesday for board game night! We wel
 
 Join us for Board Game Night where we sample new games with a great community every Tuesday 7- 9pm at the Victory Tower, 7051 Carroll Avenue, Takoma Park, MD  20912
 
-For more information, contact John at
+For more information, contact John at 301-270-0648, hagoluk2@gmail.com
 
